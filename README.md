@@ -59,7 +59,7 @@ We believe in clear communication and collaboration throughout the project lifec
 
 If you have any questions or would like to learn more about how we can help your business with warehouse automation, please get in touch with us.
 
-- **Email**: [enquiries@krystal-ea.com](mailto:enquiries@krystal-ea.com), [sales@krystal-ea.com](mailto:sales@krystal-ea.com)
+- **Email**: [enquiries@krystal-ea.com](mailto:info@krystal-ea.com), [sales@krystal-ea.com](mailto:sales@krystal-ea.com)
 - **Phone**: +254728473876
 - **Website**: [www.krystal-ea.com](https://www.krystal-ea.com)
 - **Address**: 4th Floor, Timshack Building, Ngong Road – Nairobi
